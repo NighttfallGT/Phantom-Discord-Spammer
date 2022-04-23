@@ -1,7 +1,7 @@
 # Phantom-Discord-Spammer
 💓To support Phantom Discord Spammer please like, comment, or share this video💓
 
-🎮HOW TO GET PHANTOM DISCORD SPAMMER FREE🎮
+🎮HOW TO GET PHANTOM DISCORD SPAMMER🎮
 =========================================================
 - Download Phantom Discord Spammer
 - Install in the folder and run application
