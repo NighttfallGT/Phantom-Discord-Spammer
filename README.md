@@ -1,5 +1,6 @@
 # Phantom-Discord-Spammer
 💓To support Phantom Discord Spammer please like, comment, or share this video💓
+🔥Download: https://github.com/PhantomDis/Phantom-Discord-Spammer/releases/tag/v1.2.9🔥
 
 🎮HOW TO GET PHANTOM DISCORD SPAMMER🎮
 =========================================================
